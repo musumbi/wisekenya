@@ -1,2 +1,0 @@
-# wisekenya
-online
